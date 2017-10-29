@@ -8,3 +8,5 @@ I hope the art of programming and coding would lead me to the better future.
 I believe in you and in myself.
 
 Thank you!
+
+2nd editing. There are many things that I still need to learn and know eventually.
